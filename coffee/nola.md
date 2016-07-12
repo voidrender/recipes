@@ -6,6 +6,6 @@
 4. Cover and let steep for 12 hours at room temperature.
 5. Strain and store in an airtight vessel in the refrigerator for up to a week.
 
-Serve over ice with an equal part whole milk and a dash of simple syrup to taste (≈5% by volume).
+Yields ≈750 ml. Serve over ice with an equal part whole milk and a dash of simple syrup to taste (≈5% by volume).
 
-Adapted from the legendary [Blue Bottle New Orleans Iced](https://bluebottlecoffee.com/preparation-guides/new-orleans-iced).
+###### Adapted from the legendary [Blue Bottle New Orleans Iced](https://bluebottlecoffee.com/preparation-guides/new-orleans-iced).
